@@ -1,0 +1,1 @@
+# crane_x7_cross_structure_hand
